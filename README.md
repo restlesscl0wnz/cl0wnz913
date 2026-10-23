@@ -1,5 +1,4 @@
-- Hi, I’m Restless/Circus/Clownz
-- I’m interested in FNaF, Fear and Hunger, OFF, JSaB, Half-Life, and more!
-- My discord is \_cl0wnz_
-- Pronouns: He/They/Xe/She
-- My favorite color is purple :3
+- Hi, I’m Clownz/Matt
+- Pronouns: He/They
+- I’m interested in Roblox!! I have my own AU which I write and make art for!
+- Feel free to int! I'm open for conversation or RP ^ ^
